@@ -1,0 +1,1 @@
+# MGK_letovo_linkin
